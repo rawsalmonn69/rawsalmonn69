@@ -1,4 +1,3 @@
-  ## ──── .✦   90 minutes . . .   ʚ ɞ
   
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎<img width="540" height="120" alt="Image" src="https://github.com/user-attachments/assets/d4fc25ff-4773-4d7b-aefa-4e490d31ee6f" />
 
