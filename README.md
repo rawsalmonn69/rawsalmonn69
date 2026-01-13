@@ -1,10 +1,10 @@
   ## ──── .✦   90 minutes . . .   ʚ ɞ
   
-<img width="540" height="120" alt="Image" src="https://github.com/user-attachments/assets/d4fc25ff-4773-4d7b-aefa-4e490d31ee6f" />
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="540" height="120" alt="Image" src="https://github.com/user-attachments/assets/d4fc25ff-4773-4d7b-aefa-4e490d31ee6f" />
 
-  ![aziraphale-crowley](https://github.com/user-attachments/assets/85cf8365-6496-439e-89fb-867c9e8baab6)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ![aziraphale-crowley](https://github.com/user-attachments/assets/85cf8365-6496-439e-89fb-867c9e8baab6)
 
- ──★ ˙ 🪽  ̟  check out the info on the left, more things about me is in my strawpage ok? ok 𐔌   𐦯
+‎ ‎ ‎ ‎ ‎ ‎ ‎‎──★ ˙ 🪽  ̟  check out the info on the left, more things about me is in my strawpage ok? ok 𐔌   𐦯
 
  
  ‎ ‎ ‎ ‎ ‎        <a href="https://sylversheaven.straw.page">straw</a>‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/31562734-74f2-41ce-98a2-b33cee79de33" /> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <a href="https://x.com/SswordFishh0">twitter</a> 
