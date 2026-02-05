@@ -2,7 +2,7 @@
   
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎  ‎<img width="540" height="120" alt="Image" src="https://github.com/user-attachments/assets/d4fc25ff-4773-4d7b-aefa-4e490d31ee6f" />
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎‎ ‎   ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ![Image](https://github.com/user-attachments/assets/9d88b6ea-b109-4ae4-97cc-65dfa9a25404)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎‎ ‎   ‎ ‎ ‎ ‎‎ ‎‎ ![Image](https://github.com/user-attachments/assets/9d88b6ea-b109-4ae4-97cc-65dfa9a25404)
 
 ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎──★ ˙ 🪽  ̟  check out the info on the left, more things about me is in my strawpage ok? ok 𐔌   𐦯
 
