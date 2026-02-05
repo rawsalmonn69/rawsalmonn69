@@ -1,8 +1,8 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Image](https://github.com/user-attachments/assets/ed7dbc63-daf4-4f8d-a112-bf0ad51da809)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎    ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎     ‎  ‎ ‎ ‎  ‎ ‎ ‎ jealous of my lupara . . .   ʚ ɞ ! ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ![Image](https://github.com/user-attachments/assets/8b6fde08-a5e5-4667-a94b-a4ec6b112016)
   
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎<img width="540" height="120" alt="Image" src="https://github.com/user-attachments/assets/d4fc25ff-4773-4d7b-aefa-4e490d31ee6f" />
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎  ‎<img width="540" height="120" alt="Image" src="https://github.com/user-attachments/assets/d4fc25ff-4773-4d7b-aefa-4e490d31ee6f" />
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎  ![aziraphale-crowley](https://github.com/user-attachments/assets/85cf8365-6496-439e-89fb-867c9e8baab6)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎‎ ‎   ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ![Image](https://github.com/user-attachments/assets/9d88b6ea-b109-4ae4-97cc-65dfa9a25404)
 
 ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎──★ ˙ 🪽  ̟  check out the info on the left, more things about me is in my strawpage ok? ok 𐔌   𐦯
 
