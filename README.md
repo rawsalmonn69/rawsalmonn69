@@ -7,7 +7,7 @@
 ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎   ‎‎──★ ˙ 🪽  ̟  check out the info on the left, more things about me is in my strawpage ok? ok 𐔌   𐦯
 
  
- ‎ ‎ ‎ ‎ ‎       ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  <a href="https://sylversheaven.straw.page">straw</a>‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ![Image](https://github.com/user-attachments/assets/8ac000ee-cb85-4659-a1e9-4e7cf69ff282) ![Image](https://github.com/user-attachments/assets/ce8aa384-b746-41b5-8484-6e259f433ba5) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <a href="https://x.com/SswordFishh0">twitter</a> 
+ ‎ ‎ ‎ ‎ ‎       ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  <a href="https://sylversheaven.straw.page">straw</a>‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ![Image](https://github.com/user-attachments/assets/8ac000ee-cb85-4659-a1e9-4e7cf69ff282) ![Image](https://github.com/user-attachments/assets/ce8aa384-b746-41b5-8484-6e259f433ba5) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <a href="https://x.com/SswordFishh0">twitter</a> 
  
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ![Image](https://github.com/user-attachments/assets/f45a31c7-2de7-465f-a762-33e46d1fa1c5)
 
