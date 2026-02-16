@@ -1,6 +1,11 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ![Image](https://github.com/user-attachments/assets/ed7dbc63-daf4-4f8d-a112-bf0ad51da809)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎    ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎     ‎  ‎ ‎ ‎  ‎ ‎ ‎ jealous of my lupara . . .   ʚ ɞ ! ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ![Image](https://github.com/user-attachments/assets/8b6fde08-a5e5-4667-a94b-a4ec6b112016)
   
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎  ‎<img width="540" height="120" alt="Image" src="https://github.com/user-attachments/assets/d4fc25ff-4773-4d7b-aefa-4e490d31ee6f" />
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=l7hgz0otexb9tgqaz3jr1k31l&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=l7hgz0otexb9tgqaz3jr1k31l&cover_image=true&theme=novatorem&show_offline=true&background_color=ffffff&interchange=true&profanity=false&bar_color=ffe5e5&bar_color_cover=true">
+  </a>
+</p>
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎‎ ‎   ‎ ‎ ‎ ‎‎ ‎‎ ![Image](https://github.com/user-attachments/assets/9d88b6ea-b109-4ae4-97cc-65dfa9a25404)
 
