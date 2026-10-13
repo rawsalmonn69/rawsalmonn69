@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=rawsalmonn69)
+![](https://komarev.com/ghpvc/?username=rawsalmonn69&label=mortys)
 ㅤㅤㅤ
 ![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/Untitled1890_20261013152656.png)
 
