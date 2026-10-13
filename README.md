@@ -20,5 +20,5 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ꜱᴛʀᴀᴡ](https://angelsbar.straw.page). ㅤㅤㅤㅤ[​🇸​​🇮​​🇬​​🇳​.​🇦​​🇹​​🇦​](https://francobarbi.atabook.org/). ㅤㅤㅤㅤㅤ[​ᴛᴡɪᴛᴛᴇʀ​​​](https://x.com/SswordFishh0). ㅤㅤㅤㅤㅤ[​ᴛɪᴋᴛᴏᴋ​​​](https://www.tiktok.com/@raw.salmon69).
 
-![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/tumblr_69456ef342a01a9c9f8cfa7acd8497bb_bc3581e7_250.webp)
+![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/tumblr_69456ef342a01a9c9f8cfa7acd8497bb_bc3581e7_250.webp) ![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/tumblr_a9de57bc19d7510ee28bb0d97b9ea2fb_29cabac4_100.gif)
 
