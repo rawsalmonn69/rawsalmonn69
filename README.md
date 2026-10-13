@@ -1,6 +1,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=rawsalmonn69&color=yellow&label=mortys💛)
 ㅤㅤㅤ
-https://spotify-github-profile.kittinanx.com/api/view?uid=YOUR_UID&cover_image=true&theme=default&border_radius=15&bar_color=53b14f
 
 ㅤㅤㅤㅤㅤ
 
