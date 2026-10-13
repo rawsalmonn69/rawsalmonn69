@@ -16,5 +16,5 @@
 ㅤㅤㅤㅤ $${\color{#EBDB7F}“ ㅤLiebe,ㅤsoㅤklingtㅤLiebeㅤLeiserㅤalsㅤnormalㅤDochㅤvielㅤlauterㅤalsㅤbeimㅤletztenㅤMalㅤ “
 }$$ㅤㅤㅤㅤ ![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/IMG-6007.webp)
 
-ㅤㅤㅤㅤㅤㅤ![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/Untitled1882_20261013162854.png)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/Untitled1882_20261013162854.png)
 
