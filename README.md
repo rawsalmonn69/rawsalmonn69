@@ -20,5 +20,5 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ꜱᴛʀᴀᴡ](https://angelsbar.straw.page). ㅤㅤㅤㅤ[​🇸​​🇮​​🇬​​🇳​.​🇦​​🇹​​🇦​](https://francobarbi.atabook.org/). ㅤㅤㅤㅤㅤ[​ᴛᴡɪᴛᴛᴇʀ​​​](https://x.com/SswordFishh0). ㅤㅤㅤㅤㅤ[​ᴛɪᴋᴛᴏᴋ​​​](https://www.tiktok.com/@raw.salmon69).
 
-![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/tumblr_69456ef342a01a9c9f8cfa7acd8497bb_bc3581e7_250.webp) ㅤㅤ![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/tumblr_a9de57bc19d7510ee28bb0d97b9ea2fb_29cabac4_100.gif) ![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/tumblr_ad4d33169be7144fc72e37ea7f78cbcb_13fcbf32_75.webp)
+![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/tumblr_69456ef342a01a9c9f8cfa7acd8497bb_bc3581e7_250.webp) ㅤㅤ![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/tumblr_a9de57bc19d7510ee28bb0d97b9ea2fb_29cabac4_100.gif) ![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/tumblr_ad4d33169be7144fc72e37ea7f78cbcb_13fcbf32_75.webp)  ![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/tumblr_762e903a080bc615730e1a1c70ede727_3efcd368_100.gif)
 
