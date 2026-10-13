@@ -14,4 +14,4 @@
 
 ![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/IMG-6007.webp)
 ㅤㅤㅤㅤ $${\color{#EBDB7F}“ ㅤLiebe,ㅤsoㅤklingtㅤLiebeㅤLeiserㅤalsㅤnormalㅤDochㅤvielㅤlauterㅤalsㅤbeimㅤletztenㅤMalㅤ “
-}$$ ![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/IMG-6007.webp)
+}$$ㅤㅤㅤㅤㅤ ![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/IMG-6007.webp)
