@@ -18,4 +18,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/Untitled1882_20261013162854.png)
 
-<a href="https://www.google.com/" style="color: black; text-decoration: underline;text-decoration-style: dotted;">custom link</a>
+[ꜱᴛʀᴀᴡ](https://angelsbar.straw.page). [​🇸​​🇮​​🇬​​🇳​.​🇦​​🇹​​🇦​
+](https://francobarbi.atabook.org/). [​ᴛᴡɪᴛᴛᴇʀ​​​
+](https://x.com/SswordFishh0). [​ᴛɪᴋᴛᴏᴋ​​​
+](https://www.tiktok.com/@raw.salmon69).
