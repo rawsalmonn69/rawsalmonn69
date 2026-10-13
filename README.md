@@ -16,6 +16,6 @@
 ㅤㅤㅤㅤ $${\color{#EBDB7F}“ ㅤLiebe,ㅤsoㅤklingtㅤLiebeㅤLeiserㅤalsㅤnormalㅤDochㅤvielㅤlauterㅤalsㅤbeimㅤletztenㅤMalㅤ “
 }$$ㅤㅤㅤㅤ ![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/IMG-6007.webp)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/Untitled1882_20261013162854.png)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/Untitled1882_20261013162854.png)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ꜱᴛʀᴀᴡ](https://angelsbar.straw.page). ㅤㅤㅤㅤ[​🇸​​🇮​​🇬​​🇳​.​🇦​​🇹​​🇦​](https://francobarbi.atabook.org/). ㅤㅤㅤㅤㅤ[​ᴛᴡɪᴛᴛᴇʀ​​​](https://x.com/SswordFishh0). ㅤㅤㅤㅤㅤ[​ᴛɪᴋᴛᴏᴋ​​​](https://www.tiktok.com/@raw.salmon69).
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ꜱᴛʀᴀᴡ](https://angelsbar.straw.page). ㅤㅤㅤㅤ[​🇸​​🇮​​🇬​​🇳​.​🇦​​🇹​​🇦​](https://francobarbi.atabook.org/). ㅤㅤㅤㅤㅤ[​ᴛᴡɪᴛᴛᴇʀ​​​](https://x.com/SswordFishh0). ㅤㅤㅤㅤㅤ[​ᴛɪᴋᴛᴏᴋ​​​](https://www.tiktok.com/@raw.salmon69).
