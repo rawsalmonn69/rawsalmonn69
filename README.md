@@ -1,2 +1,1 @@
-
- ‎ ‎ ‎ ‎ ‎       ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  <a href="https://angelsbar.straw.page">straw</a>‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ![Image](https://github.com/user-attachments/assets/8ac000ee-cb85-4659-a1e9-4e7cf69ff282) ![Image](https://github.com/user-attachments/assets/ce8aa384-b746-41b5-8484-6e259f433ba5) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <a href="https://x.com/SswordFishh0">twitter</a> 
+![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/Untitled1888_20261013152027.png)
