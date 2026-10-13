@@ -18,7 +18,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://raw.githubusercontent.com/rawsalmonn69/rawsalmonn69/refs/heads/main/Untitled1882_20261013162854.png)
 
-[ꜱᴛʀᴀᴡ](https://angelsbar.straw.page). [​🇸​​🇮​​🇬​​🇳​.​🇦​​🇹​​🇦​
-](https://francobarbi.atabook.org/). [​ᴛᴡɪᴛᴛᴇʀ​​​
-](https://x.com/SswordFishh0). [​ᴛɪᴋᴛᴏᴋ​​​
-](https://www.tiktok.com/@raw.salmon69).
+ㅤㅤㅤ[ꜱᴛʀᴀᴡ](https://angelsbar.straw.page). ㅤㅤㅤㅤ[​🇸​​🇮​​🇬​​🇳​.​🇦​​🇹​​🇦​](https://francobarbi.atabook.org/). ㅤㅤㅤㅤㅤ[​ᴛᴡɪᴛᴛᴇʀ​​​](https://x.com/SswordFishh0). ㅤㅤㅤㅤㅤㅤㅤㅤ[​ᴛɪᴋᴛᴏᴋ​​​](https://www.tiktok.com/@raw.salmon69).
